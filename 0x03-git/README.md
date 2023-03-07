@@ -1,1 +1,1 @@
-life is wonderful
+life is wonderful and bright
